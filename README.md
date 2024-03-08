@@ -7,7 +7,7 @@ I love diving into complex data and extracting meaningful insights.
 
 -💞 Collaboration: I’m open to collaborating on exciting projects.
 
--📫 Contact: You can find me on LinkedIn or drop me a message on GitHub. Let’s chat about data, code, or anything tech-related!
+-📫 Contact:Feel free to drop me an email at [sathish08kadri@gmail.com]on or Linkedin [www.linkedin.com/in/sathish-kumar-347435283]  Let’s chat about data, code, or anything tech-related!
 
 -😄 Pronouns: He/him. Feel free to use any pronouns that make you comfortable—I’m all about inclusivity!
 
